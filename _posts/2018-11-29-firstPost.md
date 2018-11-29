@@ -1,3 +1,8 @@
+---
+title: "First Post"
+date: 2018-11-29
+---
+
 I've been thinking alot lately about my future, and about women mostly. Both of these things apply to the future, but they don't both have equal value.
 
 Women for example just get in the way from my experience, and more importantly make me feel like shit. What's the point of continuing to pursue that when it just leads to pain over and over ? 
